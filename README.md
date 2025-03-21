@@ -1,5 +1,3 @@
-# Vinod Pattar
-
 👨‍💻 Full Stack Developer | 🚀 Technology Lead | 🌟 10+ Years Experience
 
 📍 Bengaluru, KA, India | 📱 +917795768096 | 📧 vins13pattar@gmail.com
